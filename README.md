@@ -177,6 +177,6 @@
 
 ## 📬 Contact
 
-- 📧 **Email**: [sjh7001@hanmail.net](mailto:sjh7001@hanmail.net)
+- 📧 **Email**: [jeahun.suh@gmail.com](mailto:jeahun.suh@gmail.com)
 - 💬 **LinkedIn / Portfolio Link**: *(필요 시 링크 추가)*
 
